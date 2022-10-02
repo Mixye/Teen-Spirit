@@ -5,7 +5,8 @@ Load up on guns, Bring YOUR FRIENDS
 ~
 ~
 ALWAYS WILL BE 
-* A dirty word 
+
+*A dirty word*
 ~
 Helloooo Helloooo Hellooo Hellooo
 ~
